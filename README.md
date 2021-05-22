@@ -1,0 +1,2 @@
+# windows-7-service-pack-2
+windows 7 end support  on 14/1/2020 but I start learn all and I am work on a program in which you can get support also after 2023 file is make on 15/5/2021 all is set to go each first sunday of a month new update will come on this wedpage and update download by your hand how to do there will be a video on youtube on channel name odedara shaurya from download to update all system and I am only 13 years old
